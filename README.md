@@ -1,4 +1,4 @@
 # ShenQY.github.io
 some time say some thing
 
-/n set no limit
+life set no limit
